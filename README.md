@@ -9,3 +9,6 @@ Hu6: https://www.roblox.com/games/82038179479571/Donate-to-Hu6#!/store
 Look at it: ✅
 Use it for yourself: ❌
 Put viruses and rats in it: ❌
+
+# Yes I will DMCA you
+I can, and will sue u, if u take my shit
