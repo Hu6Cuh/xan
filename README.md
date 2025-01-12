@@ -14,3 +14,5 @@ Put viruses and rats in it: ❌
 
 # Yes I will DMCA you
 I can, and will sue u, if u take my shit
+
+# FOR THE LAST TIME U CANT USE THE CODE FOR XAN IN ANYWAY SHAPE OR FORM OR I WILL SUE U CUH
